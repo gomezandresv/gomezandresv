@@ -10,5 +10,5 @@
 * 🤔 I’m looking for help with expand my knowledge and reciprocity.
 * 💬 Ask me about collaboration
 * 📫 How to reach me: gomezvillasanti@gmail.com
-* ⚡ Fun fact: I have been practicing martial arts for the last few years and recently climbed.
+* ⚡ Fun fact: I have been practicing martial arts for the last few years and recently started rock climbing.
 
